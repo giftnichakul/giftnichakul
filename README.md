@@ -1,6 +1,6 @@
 # Hello, I'm gift✨
 
-👩‍💻 Studying Computer Engineering at Chulalongkorn University
+👩‍💻 Graduated from Computer Engineering at Chulalongkorn University
 
 💖 Love to learn new things espescially technology fields
 
